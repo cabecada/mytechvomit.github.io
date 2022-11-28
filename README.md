@@ -1,1 +1,0 @@
-# mytechvomit.github.io
